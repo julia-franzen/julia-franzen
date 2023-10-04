@@ -1,4 +1,4 @@
-- <3 Hi, I’m @julia-franzen
+- <3 Oiee, sou @julia-franzen
 - 📫 How to reach me: juliafranzen04@gmail.com
 
 <!---
